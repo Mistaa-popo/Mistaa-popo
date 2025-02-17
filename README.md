@@ -1,7 +1,6 @@
 - Hi, I’m @Mistaa-popo.
 - I’m interested in learning about coding and projects.
 - Any small help or suggestion might be helping hand .
-- I'm sorry for any inconvenience in my speaking manner.
 - Thanks for reading it.
 - Please help me become someone in this digital world.
 
